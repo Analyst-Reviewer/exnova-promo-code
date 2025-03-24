@@ -1,4 +1,4 @@
-# Exnova Deposit Bonus: Get a 100% Bonus on Your First Deposit
+# Exnova Promo Code: Get a 100% Bonus on Your First Deposit
 
 <a target="_blank" href="https://exnova.com/lp/start-trading/?aff=751494&aff_model=revenue&afftrack="><img alt="banner image" src="https://static.cdnaffs.com/files/storage/public/ck/12/6tpjgpjrcr7ghg40.jpg" width="728" height="90" /></a>
 
