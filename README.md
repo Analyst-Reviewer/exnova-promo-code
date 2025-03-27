@@ -17,6 +17,11 @@ Follow these steps to claim your **100% bonus** on your first deposit:
 3. Make your first deposit.
 4. Receive a **100% bonus** automatically on your deposit amount.
 
+## More binary options Promo Code for the new users:
+- [Olymp Trade Promo Code](https://github.com/Analyst-Reviewer/olymotrade-promocode)
+- [Expert Option Promo Code](https://github.com/Analyst-Reviewer/expert-option-code/)
+- [IQ Option Promo Code](https://github.com/Analyst-Reviewer/iq-option-promocode)
+
 For example, if you deposit $100, you'll receive an additional $100, giving you a total of $200 to trade with.
 
 ## Bonus Examples Table
