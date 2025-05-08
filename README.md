@@ -21,6 +21,7 @@ Follow these steps to claim your **100% bonus** on your first deposit:
 - [Olymp Trade Promo Code](https://github.com/Analyst-Reviewer/olymotrade-promocode)
 - [Expert Option Promo Code](https://github.com/Analyst-Reviewer/expert-option-code/)
 - [IQ Option Promo Code](https://github.com/Analyst-Reviewer/iq-option-promocode)
+- [Exnova Review for the LATAM in Spanish](https://github.com/Analyst-Reviewer/Exnova-es-confiable)
 
 For example, if you deposit $100, you'll receive an additional $100, giving you a total of $200 to trade with.
 
